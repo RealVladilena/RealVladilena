@@ -52,7 +52,7 @@ What can I say except that I am a simple person who only knows what to say and d
 <br>
 <h2 align="center">           📝 ~ 𝓒𝓸𝓷𝓽𝓪𝓬𝓽 𝓶𝓮 ~ 📝</h2>
   <div align="center">
-<img src="https://1.bp.blogspot.com/--nl9AwOLPmU/XaU05Vp1uoI/AAAAAAABqHI/K0ixz0UKzIs8zCX4iYM0NuszZ5vh0cV7ACKgBGAsYHg/s1600/Azur%2BLane%2B-%2BEpisode%2B2%2B-%2BZuikaku%2BCharges%2BBlade.gif" align="right" width="373.5px" height="208.5px">
+<img src="https://cdn.discordapp.com/attachments/893941248363221024/1006294310406324375/Azur_Lane_-_Episode_2_-_Zuikaku_Charges_Blade.giff" align="right" width="373.5px" height="208.5px">
   </div>
 <br>
 <p align="center">Hewe awe some of my <br>
@@ -64,7 +64,7 @@ most used s-s-sociaw things ^^</p>
 <div>
 <h2 align="center">❤ ~ 𝓣𝓱𝓪𝓷𝓴𝓼 𝓯𝓸𝓻 𝓻𝓮𝓪𝓭𝓲𝓷𝓰! ~ ❤</h2>
 <div align="center">
-<img src="https://images3.alphacoders.com/109/1096960.png">
+<img src="https://cdn.discordapp.com/attachments/893941248363221024/1006294224112713909/1096960.png">
 </div>
 <hr>
 </div>
