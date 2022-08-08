@@ -20,7 +20,7 @@
 <img src="https://c.tenor.com/Xg2upfJoquYAAAAC/eighty-six-embarrassed.gif?width=19&height=62" align="right">
   </div>
 <li>
- <b>Name:</b> <a href='https://discord.gg/BjuQzJN7j9' target=_blank>Vladiléna</a></li>
+ <b>Name:</b> <a href='https://github.com/RealVladilena' target=_blank>Vladiléna</a></li>
 <li>
 <b>Loves:</b> anime, roleplay, MMORPG
 </li>
@@ -31,7 +31,7 @@
 <b>Hobbys:</b> Tech Stuff, Graphic Design, Web Development
 </li>
 <li>
-<b>Working :</b> Heaven RolePlay V1 - SEMI WHITELIST
+<b>Working :</b> NO PROJECT
 </li>
 <br><br><br>
 </div>
@@ -52,7 +52,7 @@ What can I say except that I am a simple person who only knows what to say and d
 <br>
 <h2 align="center">           📝 ~ 𝓒𝓸𝓷𝓽𝓪𝓬𝓽 𝓶𝓮 ~ 📝</h2>
   <div align="center">
-<img src="https://media.discordapp.net/attachments/893941248363221024/996766216167362591/unknown.png" align="right" width="373.5px" height="208.5px">
+<img src="https://1.bp.blogspot.com/--nl9AwOLPmU/XaU05Vp1uoI/AAAAAAABqHI/K0ixz0UKzIs8zCX4iYM0NuszZ5vh0cV7ACKgBGAsYHg/s1600/Azur%2BLane%2B-%2BEpisode%2B2%2B-%2BZuikaku%2BCharges%2BBlade.gif" align="right" width="373.5px" height="208.5px">
   </div>
 <br>
 <p align="center">Hewe awe some of my <br>
@@ -64,7 +64,7 @@ most used s-s-sociaw things ^^</p>
 <div>
 <h2 align="center">❤ ~ 𝓣𝓱𝓪𝓷𝓴𝓼 𝓯𝓸𝓻 𝓻𝓮𝓪𝓭𝓲𝓷𝓰! ~ ❤</h2>
 <div align="center">
-<img src="https://media.discordapp.net/attachments/893941248363221024/996765678595997777/vladxchitose.png?width=1229&height=454">
+<img src="https://images3.alphacoders.com/109/1096960.png">
 </div>
 <hr>
 </div>
