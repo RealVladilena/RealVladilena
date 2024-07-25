@@ -25,9 +25,6 @@
 <b>Loves:</b> anime, roleplay, MMORPG
 </li>
 <li>
-<b>Gender:</b> she/her/TransFemale 🏳️‍⚧️
-</li>
-<li>
 <b>Hobbys:</b> Tech Stuff, Graphic Design, Web Development
 </li>
 <li>
